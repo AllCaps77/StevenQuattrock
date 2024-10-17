@@ -2,7 +2,7 @@
 - 👀 I’m interested in Ice Hockey
 - 🌱 I’m currently learning Stuff
 - 💞️ I’m looking to collaborate on Stuff
-- 📫 How to reach me squattrock@yahoo.com
+- 📫 How to reach me 300742@students.wyoarea.org
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I have a sheep farm 
 
